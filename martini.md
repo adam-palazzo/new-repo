@@ -1,2 +1,2 @@
-# Martinit's are beautiful
+# Martini's are beautiful
 haven't had one in a while
